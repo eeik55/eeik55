@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eeik55
+- 👀 I’m interested in music, dance, fashion and beauty.
+- 🌱 I’m currently learning the basics of coding, so any tips or tricks ?
+- 💞️ I’m looking to collaborate on anything and everything.
+- 📫 How to reach me by emailing me at encisoerik55@gmail.com or add me on insta _erik_ !
